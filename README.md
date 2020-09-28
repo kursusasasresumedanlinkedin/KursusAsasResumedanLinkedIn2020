@@ -1,0 +1,1 @@
+# KursusAsasResumedanLinkedIn2020
